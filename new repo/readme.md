@@ -8,3 +8,6 @@ townhall.com _Here's What Was Discovered About Dominion Machines Used in a Swing
 
 defyccc.com _ Shocking History of Dominion Voting.pdf
 - https://defyccc.com/shocking-history-of-dominion-voting/
+
+rt.com _ Court-ordered audit concludes Dominion voting machines were intentionally designed to ‘create systemic fraud’ in Michigan — RT USA News.pdf
+- https://www.rt.com/usa/509674-michigan-dominion-audit-errors-fraud/
