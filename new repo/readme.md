@@ -19,5 +19,8 @@ townhall.com _Here's What Was Discovered About Dominion Machines Used in a Swing
 unz.com _ The “Dominion” of Election Fraud_, by Brett Redmayne-Titley - The Unz Review.pdf
 - https://www.unz.com/article/the-dominion-of-election-fraud/
 
+warren.senate.gov _ Warren, Klobuchar, Wyden, and Pocan Investigate Vulnerabilities and Shortcomings of Election Technology Industry with Ties to Private Equity _ U.S. Senator Elizabeth Warren of Massachusetts.pdf
+- https://www.warren.senate.gov/oversight/letters/warren-klobuchar-wyden-and-pocan-investigate-vulnerabilities-and-shortcomings-of-election-technology-industry-with-ties-to-private-equity
+
 zerohedge.com _ Dominion Voting Machines In 16 States Vulnerable To Hacks_ Cyber Agency _ ZeroHedge.pdf
 - https://www.zerohedge.com/political/dominion-voting-machines-16-states-vulnerable-hacks-cyber-agency
