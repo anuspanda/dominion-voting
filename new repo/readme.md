@@ -19,6 +19,10 @@ townhall.com _Here's What Was Discovered About Dominion Machines Used in a Swing
 unz.com _ The “Dominion” of Election Fraud_, by Brett Redmayne-Titley - The Unz Review.pdf
 - https://www.unz.com/article/the-dominion-of-election-fraud/
 
+warren.senate.gov _ H.I.G. McCarthy, & Staple Street letters.pdf
+- https://www.warren.senate.gov/imo/media/doc/H.I.G.%20McCarthy,%20&%20Staple%20Street%20letters.pdf
+
+https://www.warren.senate.gov/imo/media/doc/H.I.G.%20McCarthy,%20&%20Staple%20Street%20letters.pdf
 warren.senate.gov _ Warren, Klobuchar, Wyden, and Pocan Investigate Vulnerabilities and Shortcomings of Election Technology Industry with Ties to Private Equity _ U.S. Senator Elizabeth Warren of Massachusetts.pdf
 - https://www.warren.senate.gov/oversight/letters/warren-klobuchar-wyden-and-pocan-investigate-vulnerabilities-and-shortcomings-of-election-technology-industry-with-ties-to-private-equity
 
