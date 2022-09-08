@@ -11,3 +11,6 @@ defyccc.com _ Shocking History of Dominion Voting.pdf
 
 rt.com _ Court-ordered audit concludes Dominion voting machines were intentionally designed to ‘create systemic fraud’ in Michigan — RT USA News.pdf
 - https://www.rt.com/usa/509674-michigan-dominion-audit-errors-fraud/
+
+zerohedge.com _ Dominion Voting Machines In 16 States Vulnerable To Hacks_ Cyber Agency _ ZeroHedge.pdf
+- https://www.zerohedge.com/political/dominion-voting-machines-16-states-vulnerable-hacks-cyber-agency
